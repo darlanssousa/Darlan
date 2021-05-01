@@ -9,3 +9,4 @@
 - 👀 Tenho interesse em usar o conhecimento adquirido em programação na engenharia florestal.
 - 😃 E quem sabe, desenvolver uma nova profissão.
 - 📧 Podem chegar em mim pelo e-mail: darlanssousa@outlook.com
+- Linkedin: https://www.linkedin.com/in/darlanssousa/
